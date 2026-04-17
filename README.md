@@ -35,8 +35,8 @@
 ---
 
 ## 📫 Connect With Me
-- Email: your@email.com  
-- LinkedIn: (add link here)
+- Email: ku.pritam2004@gmail.com  
+- LinkedIn: https://www.linkedin.com/in/pritam-kumar-072ba2368?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_appnk
 
 ---
 
